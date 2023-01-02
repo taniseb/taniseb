@@ -7,3 +7,4 @@ I have a strong background in statistics and economics, and I've worked with pub
 
 Some of my work is publicated in online magazines and you can find more about it in my [google scholar page](https://scholar.google.com/citations?user=YTuig-gAAAAJ&hl=pt-BR) or in my [lattes curriculum](http://lattes.cnpq.br/8929030311500731)
 
+# megasena
